@@ -7,7 +7,7 @@
 - 🤔 &nbsp; Exploring GitHib as I'm new
 - 🎓 &nbsp; Studying how to make my podcast good
 - 💼 &nbsp; A
-Spotify Podcaster. You can listen [here.] (https://open.spotify.com/show/65z2AnvDu3mKC2WjZWTIEp) 
+Spotify Podcaster. You can listen here. https://open.spotify.com/show/65z2AnvDu3mKC2WjZWTIEp 
 - 🌱 &nbsp; Enthusiast in Minecraft and my computer
 - ☕ &nbsp; I belive, a perfect cup of hot chocolate can be the ultimate solution for everything. 
 
